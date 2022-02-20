@@ -21,7 +21,7 @@ anteriormente.
 Após esses episódios, decidi que deveria haver uma maneira para que o conhecimento se fixa-se de uma maneira mais sólida
 na memória, realizei pesquisas via google e me deparei com alguns artigos sobre "Aprender a Aprender", pensei que fosse 
 alguma armadilha para venda de algum curso, mas não se tratava disso. Um dos estudiosos do assunto que mais simpatizei foi
-o Professor Pierluigi Piazzi onde posteriomente adquiri seu livro chamado "Aprendendo Inteligência", que Contaria o conceito
+o Professor Pierluigi Piazzi onde posteriomente adquiri seu livro chamado "Aprendendo Inteligência", que Contraria o conceito
 que inteligência seria um fator inato e ensina a usar a propria inteligência para se tornar uma pessoa mais capacitada. Após
 essa leitura lí alguns artigos sobre como criar um hábito, por que após ter uma base que como aprender a estudar, deveria agora
 conseguir criar esse hábito em minha rotina, esse artigo trata um pouco do assunto https://blog.suryadental.com.br/neurocientistas-confirmam-em-21-dias-voce-reprograma-seu-cerebro/.
